@@ -1,0 +1,5 @@
+- 👋 Hi, I’m vvvv9
+- 👀 I’m interested in gaming
+- 🌱 I’m currently learning school
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me vvvv#1111
